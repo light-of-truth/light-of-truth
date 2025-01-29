@@ -1,8 +1,6 @@
 <h5 align="cener">
 
 ![image](https://github.com/user-attachments/assets/c76c1477-14e6-496c-a421-fc943ca28872)
-<h5 align="center">
-✦•┈๑⋅⋯ ⋯⋅๑┈•✦
 
 <h5 align="center">
 
